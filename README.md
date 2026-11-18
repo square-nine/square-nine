@@ -1,9 +1,7 @@
 hello there... I am square_nine.
 
+[squarenine.digital.io](squarenine.digital.io) is a pretty cool place. most of my details about me are there, but if you can't be bothered to check there i've put the important ones here.
 
 ### contacts:
-reddit: [u/square_nine](https://www.reddit.com/user/square_nine/)
-
+discord: [square_nine](https://discordapp.com/users/725277610208264193)
 email: squarenine.digital@gmail.com
-
-discord: [square_nine](https://discordapp.com/users/725277610208264193) - message first
